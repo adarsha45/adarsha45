@@ -7,7 +7,7 @@
 - :mailbox: How to reach me: LinkedIn 
 - :heart_eyes: For Business deals reach me through https://www.linkedin.com/in/adarsha-shrestha-092531170/
 - :smile: Pronouns: @aadarsha shrestha :sweat_smile:
-- :hugs: Love to make new connections couplehatched_chick
+- :hugs: Love to make new connections 
 - ⚡ Fun fact: I'am an Original 🐺:
 
 
